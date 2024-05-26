@@ -1,1 +1,1 @@
-# SI_2024_lab2_171240
+Hristijan Mijovski 171240
